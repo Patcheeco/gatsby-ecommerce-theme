@@ -8,4 +8,4 @@ Leticia, você é a luz da minha vida. Cada momento ao seu lado é único e espe
 
 ---
 
-**Nota:** Este é apenas um exemplo fictício e o GitHub é geralmente usado para colaboração em código. Se deseja expressar sentimentos pessoais, considere usar uma abordagem mais pessoal e apropriada fora do contexto de desenvolvimento de software.
+**Nota:** VOCE É MINHA VIDONA.
